@@ -1,2 +1,0 @@
-# revista
-Contacto Economico
